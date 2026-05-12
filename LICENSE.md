@@ -1,4 +1,4 @@
-#  
+#  custom Script for aura ascension is the best aura ascension Script, featuring auto-heal and instant win. Safe and powerful for all your needs.
 
 
 
